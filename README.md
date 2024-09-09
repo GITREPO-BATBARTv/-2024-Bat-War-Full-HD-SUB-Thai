@@ -32,7 +32,8 @@ We have curated frequently asked questions and common mistakes on Discourse, you
 
 ## 📎 Important links
 
-💪 🔴👉 CLICK HERE TO WATCH FULL VIDEO! 
+💪 🔴👉 CLICK HERE TO WATCH FULL VIDEO! 📺▶️▶[![SUB.THAI](https://img.shields.io/static/v1?label=Website&message=facebook&color=blue)](https://watching.nwsautodaily.com/th/movie/1257393 )
+
 
 
 
