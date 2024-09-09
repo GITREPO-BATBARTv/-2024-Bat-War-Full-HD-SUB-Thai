@@ -62,7 +62,7 @@ We have curated frequently asked questions and common mistakes on Discourse, you
 
 🏆[![Contribute](https://img.shields.io/static/v1?label=Contribute&message=Gitlab.participate&color=pink)](https://gitlab.com/GITREPO-VERAhoRA/repelis-ver-romper-el-circulo-2024-la-pelicula-completa-espanol-latino-gratis)
 
-🏆[![Contribute](https://img.shields.io/static/v1?label=Contribute&message=GiTHub.repo&color=pink)](https://github.com/GITREPO-BATBARTv/-2024-Bat-War-Full-HD-SUB-Thai)
+🏆[![Contribute](https://img.shields.io/static/v1?label=Contribute&message=GiTHub.repo&color=green)](https://github.com/GITREPO-BATBARTv/-2024-Bat-War-Full-HD-SUB-Thai)
 
 
 
