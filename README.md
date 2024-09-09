@@ -32,7 +32,7 @@ We have curated frequently asked questions and common mistakes on Discourse, you
 
 ## 📎 Important links
 
-💪 🔴👉 CLICK HERE TO WATCH FULL VIDEO! 📺▶️▶[![SUB.THAI](https://img.shields.io/static/v1?label=Website&message=facebook&color=blue)](https://watching.nwsautodaily.com/th/movie/1257393 )
+💪 🔴👉 CLICK HERE TO WATCH FULL VIDEO! 📺▶️▶[![FULL.HD](https://img.shields.io/static/v1?label=Website&message=bat.bar.subthai&color=orange)](https://watching.nwsautodaily.com/th/movie/1257393 )
 
 
 
